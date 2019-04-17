@@ -1,2 +1,2 @@
 # Kone1998
-really nice 
+comment to improve my project ideas 
